@@ -1,1 +1,0 @@
-# The problems can be found <a href="https://docs.google.com/document/d/1-H1Rzp0JLVePjSUAgJqDLSZB7fvpq9nMsCjR8BexKuk">here</a>
